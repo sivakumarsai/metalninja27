@@ -1,1 +1,1 @@
-- 👋 Hello, I am Sai Sivakumar, and I am a mathematics undergraduate student.
+- 👋 Hello, I am Sai Sivakumar, and I am a mathematics graduate student.
